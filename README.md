@@ -11,3 +11,7 @@
 - 𝖍𝖙𝖒𝖑
 - 𝖈𝖘𝖘
 - 𝖏𝖆𝖛𝖆𝖘𝖈𝖗𝖎𝖕𝖙
+
+## ♰ 𝖓𝖆𝖉𝖆 𝖈𝖔𝖒𝖔 𝖚𝖒 𝖉𝖎𝖆 𝖆𝖕ó𝖘 𝖔 𝖔𝖚𝖙𝖗𝖔 
+> Capítulo 4, Versículo 3 — Racionais MC's
+> https://open.spotify.com/intl-pt/track/6Wt61AZLG0bN2KasopE2sj?si=c2953b333faf40b9
